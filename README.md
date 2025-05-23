@@ -1,0 +1,1 @@
+# Galactic-Civilizations-trainer-edit-controls-mod
